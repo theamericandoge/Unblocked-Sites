@@ -2,8 +2,6 @@ Be sure to join the official Unblocked Sites Discord server! https://discord.gg/
 # Unblocked Sites!
 Hey, everyone! Here are some of the many unblocked games sites i know:
 
-https://unblocker.whitespider.gq/
-
 https://unlock.wmeluna.com/
 
 https://sz-games.github.io
